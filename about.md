@@ -15,4 +15,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[samideniz@cci.com.tr](mailto:samideniz@cci.com.tr)
+[mertcan.ozcelik.mo@gmail.com](mailto:mertcan.ozcelik.mo@gmail.com)
