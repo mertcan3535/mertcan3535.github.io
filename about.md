@@ -9,9 +9,6 @@ My engineering education made me gain the strong analytical skills. I took varie
 
 In the short run, my objective is to develop my skills and broaden my vision, apply my experiences and leadership qualifications. In the long run, my aim is to learn new things with my passion. being successful and provide overall career enhancement. 
 
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself.
 
 ### Contact me
 
